@@ -1,0 +1,4 @@
+Solipsism
+=========
+
+My world View
